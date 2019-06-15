@@ -1,2 +1,0 @@
-# erikmillergalow.com
-Personal website
